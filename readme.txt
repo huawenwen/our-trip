@@ -19,4 +19,4 @@ Creating a new branch is quick and simple.
 　　　　　　 !'〈//｀Ｔ´', ＼ ｀'7'ｰr' 
 　　　　　　 ﾚ'ヽL__|___i,___,ンﾚ|ノ 
 　　　　　 　　　ﾄ-,/　|___./ 
-　　　　　 　　　'ｰ'　　!_,.:我也学你们！
+　　　　　 　　　'ｰ'　　!_,.:we too!
